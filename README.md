@@ -10,7 +10,7 @@
        //        _    \    
       //   .-. (~v~) /|    
     
-
+Gmail: j0a0viitor324@gmail.com
 
 <!---
 mago-pixel/mago-pixel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
